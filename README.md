@@ -9,6 +9,7 @@
 
 ###
 
+<img align="right" height="150" src="https://tenor.com/view/core-keeper-core-keeper-core-keeper-code-ck-code-gif-26326564"  />
 
 ###
 
