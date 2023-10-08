@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="https://tenor.com/view/core-keeper-core-keeper-core-keeper-code-ck-code-gif-26326564"  />
+<img align="right" height="150" src="[https://tenor.com/view/core-keeper-core-keeper-core-keeper-code-ck-code-gif-26326564](https://images-ext-2.discordapp.net/external/2HgK1u59z6CoKAYrz0OPxo6XpXZMnXmjW6HMrcpdid8/https/media.tenor.com/rz7YXvXEWvIAAAPo/core-keeper-core.mp4)"  />
 
 ###
 
